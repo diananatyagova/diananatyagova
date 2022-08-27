@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @diananatyagova
+- 👀 I’m interested in crypto
+- 🌱 I’m currently learning in university
+- 📫 How to reach me ,my email is diana.natyagova@mail.ru
